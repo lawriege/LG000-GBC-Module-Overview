@@ -1,1 +1,1 @@
-# LG000-GBC-Module-Overview
+This content is now over at https://lawriege.com/
